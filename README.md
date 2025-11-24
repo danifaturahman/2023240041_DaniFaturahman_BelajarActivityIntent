@@ -1,0 +1,2 @@
+# 2023240041_DaniFaturahman_BelajarActivityIntent
+first day BelajarActivityIntent
